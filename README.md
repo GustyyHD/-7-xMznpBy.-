@@ -1,2 +1,2 @@
 # -7-xMznpBy.-
-sletjes
+Let op het taalgebruik jongens!
